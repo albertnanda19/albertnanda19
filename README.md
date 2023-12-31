@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **alberttmangiri@gmail.com**
 
-- ⚡ Fun fact **I think I'm kinday cringe but funny**
+- ⚡ Fun fact **I think I'm kinda cringe but funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
